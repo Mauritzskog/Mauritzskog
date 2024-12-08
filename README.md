@@ -16,8 +16,8 @@ I also do on contract development and have a few been a part of a few projects p
 ---
 
 ## 🌐 Socials 
-- **LinkedIn:** [YourLinkedInProfile](https://linkedin.com/in/mauritz-hardersen-skogøy)  
-- **Instagram:** [YourTwitterHandle](https://instagram.com/Mauritz_skogoey)  
+- **LinkedIn:** [Linkeding](https://linkedin.com/in/mauritz-hardersen-skogøy)  
+- **Instagram:** [Instagram](https://instagram.com/Mauritz_skogoey)  
 ---
 
 I am eager to learn and collaborate so if you're interested please get in touch!
