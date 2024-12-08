@@ -16,7 +16,7 @@ I also do on contract development and have a few been a part of a few projects p
 ---
 
 ## 🌐 Socials 
-- **LinkedIn:** [Linkeding](https://linkedin.com/in/mauritz-hardersen-skogøy)  
+- **LinkedIn:** [Linkedin](https://linkedin.com/in/mauritz-hardersen-skogøy)  
 - **Instagram:** [Instagram](https://instagram.com/Mauritz_skogoey)  
 ---
 
